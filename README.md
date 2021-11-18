@@ -1,2 +1,3 @@
 # Light-Controls-Market-Size-Regional-Trends-and-Opportunities-Revenue-Analysis-For-2020-2028
+https://www.reportsanddata.com/report-detail/light-controls-market
  The global light controls market size was significantly large in 2020, and is expected to continue to register a rapidly inclining revenue CAGR between 2021 and 2028. Key factors responsible for driving market revenue growth are increasing advantages of energy-efficient light bulbs, such as Light Emitting Diode (LED) lights, High Intensity Discharge (HID) lamps, and Compact Fluorescent Lights (CFL) over standard light bulbs in terms of power usage and light life.
